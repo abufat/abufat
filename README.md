@@ -11,8 +11,8 @@ Here are some ideas to get you started:
 - 🔭 Salut c'est Abulai
 - 🌱 Étudiant en deuxième année en informatique
 - 📍 Lyon, France
-- 📫 Mon compte LinkedIn : Abulai Fati.
-- 😄 Pronouns: He/Him
+- 📫 Mail : abufatmgl@gmail.com.
+- 😄 Pronoms: He/Him
 
 
 
